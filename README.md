@@ -1,4 +1,4 @@
-# 💫 HI THERE! I'M BUSE:
+# 💫 Hi there! I'm Buse:
 👩‍💻I'm currently working on my Skills<br>💻I'm currently learning more about Frontend Development<br>📩How to reach me:Email - busekasaci11@gmail.com<br>
 
 
